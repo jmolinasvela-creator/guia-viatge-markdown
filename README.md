@@ -56,22 +56,20 @@ La gastronomia argentina te molta influencia italiana i espanyola, encara que ha
 Alguns dels plats més típics son:
 
   * Empanadas
-    *    
+    * Masses farcides de carn, de pollastre o pernil i formatge, entre altres ingredients.   
   * Fugazzeta
-    *   
+    * És un tipus de pizza porteña amb una gran quantitat de formatge i moltíssima ceba.
   * Asado
-    * 
+    * Talls de carn cuinats a la graella. Pot inclourse xoriço o botifarra negra.
   * Milanesa
-    * 
-  * Provoleta
-    * 
+    * Carn de pollaste o vedella arrebossada i fregida. Es pot servir amb ensalada, patates fregides o puré de patates. Hi ha una versió napolitana que incloeix tomàquet (o salsa de tomàtiga), formatge, oregan i a vegades pernil. 
 
 Per berenar trobareu opcions com:
 
   * Facturas
-    * Una manca de 
+    * Productes de brioixeria. N'hi ha moltes diferentes, cadasquna amb el seu nom. És habitual que duguin membrillo i crema.
   * Alfajores
-    * Un
+    * Dolços formats per dues galetes amb farciment, sovint de dolç de llet.
   * Mate
     * Una beguda feta amb yerba mate i aigua. Pot endolçarse amb mel o sucre.
 
