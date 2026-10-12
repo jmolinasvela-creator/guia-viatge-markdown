@@ -10,7 +10,7 @@ Tant si viatges sol, en grup o tens amics argentins que vénen a trobar-te, aque
 
 En aquesta guia de viatge vos plantejam un itinerari de cinc dies per descobrir els barris principals sense prises. 
 
-1. ### Dia 1: El centre de la ciutat
+1. **Dia 1: El centre de la ciutat**
 
  * Plaza de Mayo i la Casa Rosada.
 
@@ -23,7 +23,7 @@ En aquesta guia de viatge vos plantejam un itinerari de cinc dies per descobrir 
  * Sopar en una pizzeria tradicional.
 
 
-2. ### Dia 2: La Boca i San Telmo
+2. **Dia 2: La Boca i San Telmo**
 
  * Matí a Caminito i els voltants.
 
@@ -38,37 +38,37 @@ En aquesta guia de viatge vos plantejam un itinerari de cinc dies per descobrir 
  * Acaba el dia amb un sopar argentí o un espectacle de tango.
 
 
-### Dia 3: llocs culturals i espais arquitectònics destacats
+3. **Dia 3: llocs culturals i espais arquitectònics destacats**
 
-* Cementiri de la Recoleta.
+  * Cementiri de la Recoleta.
 
-* Museu Nacional de Belles Arts, si t’interessa l’art.
+  * Museu Nacional de Belles Arts, si t’interessa l’art.
 
-* Llibreria El Ateneo Grand Splendid.
+  * Llibreria El Ateneo Grand Splendid.
 
-  * Una antiga sala de teatre que es va transformar en una llibrería a l'any 2000. Es troba en el barri de Recoleta. Es un espai que mescla lo cultural amb l'estètic, motiu pel cual atrau tant a gent local com a turistes.
+    * Una antiga sala de teatre que es va transformar en una llibrería a l'any 2000. Es troba en el barri de Recoleta. Es un espai que mescla lo cultural amb l'estètic, motiu pel cual atrau tant a gent local com a turistes.
 
-* Teatro Colón, amb una visita guiada o una funció si encaixa amb el pressupost.
+  * Teatro Colón, amb una visita guiada o una funció si encaixa amb el pressupost.
 
-  * Un teatre d'òpera de fama internacional. Fan visites guiades, encara que el millor es aconseguir entrades per veure cualque funció. Així es podrà disfrutar de l'acústica que proporciona l'edifici.
+    * Un teatre d'òpera de fama internacional. Fan visites guiades, encara que el millor es aconseguir entrades per veure cualque funció. Així es podrà disfrutar de l'acústica que proporciona l'edifici.
 
-### Dia 4: Palermo
+4. **Dia 4: Palermo**
 
-* Passeig pels Bosques de Palermo i el Rosedal.
+  * Passeig pels Bosques de Palermo i el Rosedal.
 
-* Explora Palermo Soho i les seves botigues, cafeteries i restaurants.
+  * Explora Palermo Soho i les seves botigues, cafeteries i restaurants.
 
-* A la nit, descobreix algun bar o local de música.
+  * A la nit, descobreix algun bar o local de música.
 
-### Dia 5: Puerto Madero
+5. **Dia 5: Puerto Madero**
 
-* Passeig per Puerto Madero i el Puente de la Mujer.
+  * Passeig per Puerto Madero i el Puente de la Mujer.
 
-  * Aquest por antic es va reconvertir en una zona moderna. Es conforma per una zona empresarial d'oficines, restaurants i passeigs vora l'aigua. Un dels punts més turístics es El Puente de la Mujer.
+    * Aquest por antic es va reconvertir en una zona moderna. Es conforma per una zona empresarial d'oficines, restaurants i passeigs vora l'aigua. Un dels punts més turístics es El Puente de la Mujer.
 
-* Reserva Ecológica Costanera Sur, si està oberta i el temps acompanya.
+  * Reserva Ecológica Costanera Sur, si està oberta i el temps acompanya.
 
-* Compra factures o alfajores per gaudir-ne abans de tornar.
+  * Compra factures o alfajores per gaudir-ne abans de tornar.
 
 ## Com arribar
 
