@@ -60,7 +60,7 @@ Alguns dels plats més típics son:
   * Fugazzeta
     * És un tipus de pizza porteña amb una gran quantitat de formatge i moltíssima ceba.
   * Asado
-    * Talls de carn cuinats a la graella. Pot inclourse xoriço o botifarra negra.
+    * Talls de carn cuinats a la graella. Pot inclourse xoriço o botifarra negra. A vegades s'aprofita per fer provoleta, que es formatge _provolone_ fet a la graella.
   * Milanesa
     * Carn de pollaste o vedella arrebossada i fregida. Es pot servir amb ensalada, patates fregides o puré de patates. Hi ha una versió napolitana que incloeix tomàquet (o salsa de tomàtiga), formatge, oregan i a vegades pernil. 
 
