@@ -1,10 +1,9 @@
-# Guía de viatge de Buenos Aires, Argentina
+# Guia de viatge de Buenos Aires, Argentina
 
 ![Imatge representativa de Bons Aires, Argentina](https://images.trvl-media.com/place/6060849/f748009f-3a69-4aa8-98d1-2828033174a9.jpg)
 
-Aquesta guia de viatge vol convèncer o ajudar a les persones que estiguin interessades en viatjar a Buenos Aires, Argentina.
-Sobre Buenos Aires hem de sebre que es la capital de Argentina i que trobarem una ciutat massa interessant, plena d'influència europea en la seva arquitectura, una gastronomía on destaquen carns, empanades i dolços, a més d'activitats físiques com ballar tango o jugar a futbol.
-Encara si anau pel vostre compte, en grup o teniu amics argentins, aquesta guia vos serà de molta utilitat.
+Aquesta guia de viatge té com a objectiu inspirar o ajudar a tothom qui estigui interessat a viatjar a Buenos Aires. Pel que fa a Buenos Aires, és important saber que és la capital d'Argentina i que hi trobareu una ciutat fascinant, amb influències europees evidents en la seva arquitectura, una cuina basada en plats de carn, empanades i dolços, així com activitats com ballar el tango o jugar a futbol.
+Tant si viatges sol, en grup o tens amics argentins que vénen a trobar-te, aquesta guia et serà molt útil.
 
 ## Llocs d'interès
 
