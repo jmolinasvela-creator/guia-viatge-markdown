@@ -10,7 +10,7 @@ Tant si viatges sol, en grup o tens amics argentins que vénen a trobar-te, aque
 
 En aquesta guia de viatge vos plantejam un itinerari de cinc dies per descobrir els barris principals sense prises. 
 
-1. **Dia 1: El centre de la ciutat**
+1. **El centre de la ciutat**
 
  * Plaza de Mayo i la Casa Rosada.
 
@@ -23,7 +23,7 @@ En aquesta guia de viatge vos plantejam un itinerari de cinc dies per descobrir 
  * Sopar en una pizzeria tradicional.
 
 
-2. **Dia 2: La Boca i San Telmo**
+2. **La Boca i San Telmo**
 
  * Matí a Caminito i els voltants.
 
@@ -38,7 +38,7 @@ En aquesta guia de viatge vos plantejam un itinerari de cinc dies per descobrir 
  * Acaba el dia amb un sopar argentí o un espectacle de tango.
 
 
-3. **Dia 3: llocs culturals i espais arquitectònics destacats**
+3. **Llocs culturals i espais arquitectònics destacats**
 
   * Cementiri de la Recoleta.
 
@@ -52,7 +52,7 @@ En aquesta guia de viatge vos plantejam un itinerari de cinc dies per descobrir 
 
     * Un teatre d'òpera de fama internacional. Fan visites guiades, encara que el millor es aconseguir entrades per veure cualque funció. Així es podrà disfrutar de l'acústica que proporciona l'edifici.
 
-4. **Dia 4: Palermo**
+4. **Palermo**
 
   * Passeig pels Bosques de Palermo i el Rosedal.
 
@@ -60,7 +60,7 @@ En aquesta guia de viatge vos plantejam un itinerari de cinc dies per descobrir 
 
   * A la nit, descobreix algun bar o local de música.
 
-5. **Dia 5: Puerto Madero**
+5. **Puerto Madero**
 
   * Passeig per Puerto Madero i el Puente de la Mujer.
 
