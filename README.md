@@ -73,11 +73,11 @@ Per berenar al matí o a la tarda, trobareu opcions delicioses i variades com:
 
 Podreu probar gastronomia argentina típica a llocs com els següents:
 
-  * Parilla Peña
-  * La Mezzetta
+  * **Parilla Peña**
+  * **La Mezzetta**
     * Es una pizzeria on podeu probar la típica fugazzetta. 
-  * La Estancia Asador Criollo
-  * Café Tortoni
+  * **La Estancia Asador Criollo**
+  * **Café Tortoni**
     * Aquest cafè es la recomanació per fer una pausa i aprofitar a probar alguns dels dolços més típics.
 
 ---
