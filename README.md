@@ -2,7 +2,7 @@
 
 ![Imatge representativa de Bons Aires, Argentina](https://images.trvl-media.com/place/6060849/f748009f-3a69-4aa8-98d1-2828033174a9.jpg)
 
-Aquesta guia de viatge té com a objectiu inspirar o ajudar a tothom qui estigui interessat a viatjar a Buenos Aires. Pel que fa a Buenos Aires, és important saber que és la capital d'Argentina i que hi trobareu una ciutat fascinant, amb influències europees evidents en la seva arquitectura, una cuina basada en plats de carn, empanades i dolços, així com activitats com ballar el tango o jugar a futbol.
+Aquesta guia de viatge té com a objectiu inspirar o ajudar a tothom qui estigui interessat a viatjar a Buenos Aires. Pel que fa a Buenos Aires, és important saber que és la **capital d'Argentina** i que hi trobareu una ciutat fascinant, amb influències europees evidents en la seva **arquitectura**, una **cuina** basada en plats de carn, empanades i dolços, així com **activitats** com ballar el tango o jugar a futbol.
 Tant si viatges sol, en grup o tens amics argentins que vénen a trobar-te, aquesta guia et serà molt útil.
 
 
@@ -12,29 +12,29 @@ En aquesta guia de viatge vos plantejam un itinerari de cinc dies per descobrir 
 
 1. **El centre de la ciutat**
 
- * Plaza de Mayo i la Casa Rosada.
+  * Plaza de Mayo i la Casa Rosada.
 
- * Avinguda de Mayo i els seus edificis històrics.
+  * Avinguda de Mayo i els seus edificis històrics.
+  
+  * Obelisc i avinguda Corrientes.
 
- * Obelisc i avinguda Corrientes.
+    * Símbol de la ciutat. Es troba al centre i es un bon punt de partida per explorar els voltants. A l'avinguda Corrientes n'hi ha teatres, llibreries i pizzeries que mereixen la pena visitar.
 
-   * Símbol de la ciutat. Es troba al centre i es un bon punt de partida per explorar els voltants. A l'avinguda Corrientes n'hi ha teatres, llibreries i pizzeries que mereixen la pena visitar.
-
- * Sopar en una pizzeria tradicional.
+  * Sopar en una pizzeria tradicional.
 
 2. **La Boca i San Telmo**
 
- * Matí a Caminito i els voltants.
+  * Matí a Caminito i els voltants.
 
-   * Es una zona molt famosa perque les cases estàn pintades de colors. Es pot apreciar l'art urbà i la seva relació històrica amb el tango. Es troba a pror de La Bombonera, que es l'estadi de Boca Juniors, un equip famós argentí de futbol.
+    * Es una zona molt famosa perque les cases estàn pintades de colors. Es pot apreciar l'art urbà i la seva relació històrica amb el tango. Es troba a pror de La Bombonera, que es l'estadi de Boca Juniors, un equip famós argentí de futbol.
 
- * Tarda recorrent San Telmo i el seu mercat.
+  * Tarda recorrent San Telmo i el seu mercat.
 
-   * Un dels barris més antics de Buenos Aires. Hi trobaràs patrimoni históric, arquitectura colonial i una vida cultural atractiva. Té carrers antics, tendes d'antigüetats, bars, feries els diumenges.  
+    * Un dels barris més antics de Buenos Aires. Hi trobaràs patrimoni históric, arquitectura colonial i una vida cultural atractiva. Té carrers antics, tendes d'antigüetats, bars, feries els diumenges.  
 
- * Si és diumenge, visita la fira de la Plaza Dorrego.
+  * Si és diumenge, visita la fira de la Plaza Dorrego.
 
- * Acaba el dia amb un sopar argentí o un espectacle de tango.
+  * Acaba el dia amb un sopar argentí o un espectacle de tango.
 
 
 3. **Llocs culturals i espais arquitectònics destacats**
