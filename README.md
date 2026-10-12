@@ -69,29 +69,23 @@ En aquesta guia de viatge vos plantejam un itinerari de cinc dies per descobrir 
 
   * Compra factures o alfajores per gaudir-ne abans de tornar.
 
-## Com arribar
-
-Aerolínies i duració del vuelo
-
 ## Gastronomia
 
 La gastronomia argentina te molta influencia italiana i espanyola, encara que han adaptat aquesta influencia al seus gusts i receptes. 
 
 Alguns dels plats més típics son:
 
-* Milanesa
-* Fugazzeta
-* Ossobuco
-* Choripán
 * Empanadas
+* Fugazzeta
+* Choripán
 * Asado
+* Milanesa
 * Provoleta
-* Vitello Tonnato
 * Facturas
 * Alfajores
 * Mate
 
-Podreu probar gastronomia argentina típica a molts de llocs com: 
+Podreu probar gastronomia argentina típica a llocs com els següents:
 
 * Parilla Peña
 * La Mezzetta
@@ -110,15 +104,6 @@ Trobam dades com:
 * 10 de novembre: 
 
 Si encara pareix poc, en febrer o març es celebra el carnaval, i entre agost i septembre el festival i mundial de Tango BA.
-
-## Rutes, excursions i activitats típiques
-
-Encara si no anau cuan siguin les festes, 
-
-Desde Bons Aires, 
-
-
-
 
 Pér últim, recordau que nosaltres tenim un temp calurós a l'estiu (juny, julio, agost) i en aquests messos fa fred a Argentina.
 
