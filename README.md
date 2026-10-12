@@ -8,7 +8,7 @@ Tant si viatges sol, en grup o tens amics argentins que vénen a trobar-te, aque
 
 ## Itinerari recomanat
 
-En aquesta guia de viatge vos plantejam un itinerari de cinc dies.
+En aquesta guia de viatge vos plantejam un itinerari de cinc dies per descobrir els barris principals sense prises. 
 
 ### Dia 1: El centre de la ciutat
 
@@ -48,8 +48,6 @@ En aquesta guia de viatge vos plantejam un itinerari de cinc dies.
 
 * Explora Palermo Soho i les seves botigues, cafeteries i restaurants.
 
-* Tarda lliure per quedar amb els teus amics i conèixer els seus llocs preferits.
-
 * A la nit, descobreix algun bar o local de música.
 
 ### Dia 5: Puerto Madero
@@ -57,8 +55,6 @@ En aquesta guia de viatge vos plantejam un itinerari de cinc dies.
 * Passeig per Puerto Madero i el Puente de la Mujer.
 
 * Reserva Ecológica Costanera Sur, si està oberta i el temps acompanya.
-
-* Dinar de comiat amb els teus amics.
 
 * Compra factures o alfajores per gaudir-ne abans de tornar.
 
