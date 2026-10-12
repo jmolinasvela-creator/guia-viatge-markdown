@@ -12,8 +12,6 @@ Tant si viatges sol, en grup o tens amics argentins que vénen a trobar-te, aque
 
 ## Top 3 llocs on anar en Buenos Aires
 
-
-
 1. L'Obelisc i l'avinguda 9 de Julio:
 
 Símbol de la ciutat. Es troba al centre i es un bon punt de partida per explorar els voltants. A l'avinguda Corrientes n'hi ha teatres, llibreries i pizzeries que mereixen la pena visitar.
@@ -28,7 +26,7 @@ Un teatre d'òpera de fama internacional. Fan visites guiades, encara que el mil
    
 ## Mencions honorífiques
 
-Altres llocs d'interés poden ser:
+Encara que he indicat alguns dels llocs millor valorats turísticament de Buenos Aires, cualsevol viatger voldría sebre de l'existència d'aquestes mencions honorífiques.
 
 1. San Telmo:
    
@@ -42,14 +40,6 @@ Aquest por antic es va reconvertir en una zona moderna. Es conforma per una zona
    
 Una antiga sala de teatre que es va transformar en una llibrería a l'any 2000. Es troba en el barri de Recoleta. Es un espai que mescla lo cultural amb l'estètic, motiu pel cual atrau tant a gent local com a turistes.
 
-
-Encara que he indicat alguns dels llocs millor valorats turísticament de Buenos Aires, cualsevol viatger voldría sebre de l'existència d'aquestes mencions honorífiques.
-
-1. d
-2. d
-3. d
-4. d
-   
 ## Com arribar
 
 Aerolínies i duració del vuelo
