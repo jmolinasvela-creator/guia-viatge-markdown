@@ -22,7 +22,6 @@ En aquesta guia de viatge vos plantejam un itinerari de cinc dies per descobrir 
 
  * Sopar en una pizzeria tradicional.
 
-
 2. **La Boca i San Telmo**
 
  * Matí a Caminito i els voltants.
