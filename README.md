@@ -55,23 +55,23 @@ La gastronomia argentina te molta influencia italiana i espanyola, encara que ha
 
 Alguns dels plats més típics son:
 
- * Empanadas
- * Fugazzeta
- * Choripán
- * Asado
- * Milanesa
- * Provoleta
- * Facturas
- * Alfajores
- * Mate
+  * Empanadas
+  * Fugazzeta
+  * Choripán
+  * Asado
+  * Milanesa
+  * Provoleta
+  * Facturas
+  * Alfajores
+  * Mate
 
 Podreu probar gastronomia argentina típica a llocs com els següents:
 
- * Parilla Peña
- * La Mezzetta
- * La Estancia Asador Criollo
- * Café Tortoni
-  * Aquest cafè es la recomanació per fer una pausa i aprofitar a probar alguns dels dolços més típics.
+  * Parilla Peña
+  * La Mezzetta
+  * La Estancia Asador Criollo
+  * Café Tortoni
+    * Aquest cafè es la recomanació per fer una pausa i aprofitar a probar alguns dels dolços més típics.
 
 ---
 
