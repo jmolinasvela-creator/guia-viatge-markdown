@@ -30,9 +30,9 @@ En aquesta guia de viatge vos plantejam un itinerari de cinc dies per descobrir 
   * **Cementiri de la Recoleta**.
   * **Museu Nacional de Belles Arts**, si t’interessa l’art.
   * Llibreria **El Ateneo Grand Splendid**.
-    * Una antiga sala de teatre que es va transformar en una llibrería a l'any 2000. Es troba en el barri de Recoleta. Es un espai que mescla lo cultural amb l'estètic, motiu pel cual atrau tant a gent local com a turistes.
+    * Una antiga sala de teatre que es va transformar en una llibrería a l'any 2000. Es troba en el barri de Recoleta. Es un espai que barreja cultural amb estètica, motiu pel cual atrau tant a gent local com a turistes.
   * **Teatro Colón**, amb una visita guiada o una funció si encaixa amb el pressupost.
-    * Un teatre d'òpera de fama internacional. Fan visites guiades, encara que el millor es aconseguir entrades per veure cualque funció. Així es podrà disfrutar de l'acústica que proporciona l'edifici.
+    * Un teatre d'òpera de fama internacional. Fan visites guiades, encara que el millor és aconseguir entrades per veure un espectacle. D'aquesta manera, podreu gaudir de l'acústica que ofereix l'edifici.
 
 4. **Palermo**
 
