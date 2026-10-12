@@ -87,9 +87,9 @@ Podreu probar gastronomia argentina típica a llocs com els següents:
 
 En els enllaços següents trobareu més informació de Buenos Aires seràn d'utilidad planificar el vostre viatge:
 
-![Trobeu més informació **visual** mitjançant Google Maps](https://www.google.com/maps/search/bs+as%2C+Argentina/?hl=es)
+[Trobeu més informació **visual** mitjançant Google Maps](https://www.google.com/maps/search/bs+as%2C+Argentina/?hl=es)
 
-![Trobeu més informació **històrica i cultural** a la Viquièdia](https://ca.wikipedia.org/wiki/Buenos_Aires)
+[Trobeu més informació **històrica i cultural** a la Viquièdia](https://ca.wikipedia.org/wiki/Buenos_Aires)
 
 
-![Trobau més informació per **planificar el vostre viatge** a la Web de Turisme oficial](https://turismo.buenosaires.gob.ar/es)
+[Trobau més informació per **planificar el vostre viatge** a la Web de Turisme oficial](https://turismo.buenosaires.gob.ar/es)
