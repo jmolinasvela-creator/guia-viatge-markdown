@@ -53,28 +53,29 @@ La cuina argentina està fortament influïda per les tradicions **italianes** i 
 
 Alguns dels plats salats més típics d'Argentina són els següents: 
 
-  * Empanadas
+  * **Empanadas**
     * Masses farcides de carn, de pollastre o pernil i formatge, entre altres ingredients.   
-  * Fugazzeta
+  * **Fugazzetta**
     * És un tipus de pizza porteña amb una gran quantitat de formatge i un munt de ceba.
-  * Asado
+  * **Asado**
     * Talls de carn cuinats a la graella. Pot inclourse xoriço o botifarra negra. A vegades s'aprofita per fer provoleta, que es formatge _provolone_ fet a la graella.
-  * Milanesa
+  * **Milanesa**
     * Carn de pollaste o vedella arrebossada i fregida. Es pot servir amb una amanida, patates fregides o puré de patates. Hi ha una versió napolitana que incloeix tomàquet (o salsa de tomàtiga), formatge, orenga i a vegades pernil. 
 
 Per berenar al matí o a la tarda, trobareu opcions delicioses i variades com:
 
-  * Facturas
+  * **Facturas**
     * Productes de _brioixeria_. Hi ha moltes diferentes, cadasquna amb el seu nom. Normalment duen **codony** i **crema pastissera**.
-  * Alfajores
+  * **Alfajores**
     * Dolços formats per dues galetes amb farciment de **dolç de llet**.
-  * Mate
+  * **Mate**
     * Una beguda feta amb **yerba mate** i aigua. Es pot endolcir amb mel o sucre.
 
 Podreu probar gastronomia argentina típica a llocs com els següents:
 
   * Parilla Peña
   * La Mezzetta
+    * Es una pizzeria on podeu probar la típica fugazzetta. 
   * La Estancia Asador Criollo
   * Café Tortoni
     * Aquest cafè es la recomanació per fer una pausa i aprofitar a probar alguns dels dolços més típics.
