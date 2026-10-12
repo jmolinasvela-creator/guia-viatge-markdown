@@ -72,7 +72,7 @@ Podreu probar gastronomia argentina típica a llocs com els següents:
 * La Mezzetta
 * La Estancia Asador Criollo
 * Café Tortoni
-  Aquest cafè es la recomanació per fer una pausa i aprofitar a probar alguns dels dolços més típics.
+ * Aquest cafè es la recomanació per fer una pausa i aprofitar a probar alguns dels dolços més típics.
 
 ## Tradicions, festes i costums
 
