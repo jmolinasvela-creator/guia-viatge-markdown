@@ -1,9 +1,9 @@
-# Guía de viatge de Bons Aires, Argentina
+# Guía de viatge de Buenos Aires, Argentina
 
 ![Imatge representativa de Bons Aires, Argentina](https://images.trvl-media.com/place/6060849/f748009f-3a69-4aa8-98d1-2828033174a9.jpg)
 
-Aquesta guia de viatge vol convèncer o ajudar a les persones que estiguin interessades en viatjar a Bons Aires, Argentina.
-Sobre Bons Aires hem de sebre que es la capital de Argentina i que trobarem una ciutat massa interessant, plena d'influència europea en la seva arquitectura, una gastronomía on destaquen carns, empanades i dolços, a més d'activitats físiques com ballar tango o jugar a futbol.
+Aquesta guia de viatge vol convèncer o ajudar a les persones que estiguin interessades en viatjar a Buenos Aires, Argentina.
+Sobre Buenos Aires hem de sebre que es la capital de Argentina i que trobarem una ciutat massa interessant, plena d'influència europea en la seva arquitectura, una gastronomía on destaquen carns, empanades i dolços, a més d'activitats físiques com ballar tango o jugar a futbol.
 Encara si anau pel vostre compte, en grup o teniu amics argentins, aquesta guia vos serà de molta utilitat.
 
 ## Llocs d'interès
@@ -15,10 +15,10 @@ El llocs d'interès
 
 
 
-## Top 3 llocs on anar en Bons Aires
+## Top 3 llocs on anar en Buenos Aires
 
 1. San Telmo:
-   Un dels barris més antics de Bons Aires. Hi trobaràs patrimoni históric, arquitectura colonial i una vida cultural atractiva. Té carrers antics, tendes d'antigüetats, bars, feries els diumenges.  
+   Un dels barris més antics de Buenos Aires. Hi trobaràs patrimoni históric, arquitectura colonial i una vida cultural atractiva. Té carrers antics, tendes d'antigüetats, bars, feries els diumenges.  
 
 2. Teatre Colón:
    Un teatre d'òpera de fama internacional. Fan visites guiades, encara que el millor es aconseguir entrades per veure cualque funció. Així es podrà disfrutar de l'acústica que proporciona l'edifici.
@@ -30,7 +30,7 @@ El llocs d'interès
 
 
 
-Encara que he indicat alguns dels llocs millor valorats turísticament de Bons Aires, cualsevol viatger voldría sebre de l'existència d'aquestes mencions honorífiques.
+Encara que he indicat alguns dels llocs millor valorats turísticament de Buenos Aires, cualsevol viatger voldría sebre de l'existència d'aquestes mencions honorífiques.
 
 1. d
 2. d
