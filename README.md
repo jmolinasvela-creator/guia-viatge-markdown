@@ -118,20 +118,15 @@ Encara si no anau cuan siguin les festes,
 Desde Bons Aires, 
 
 
-  
-## Què dur a la maleta
 
-Recordau que nosaltres tenim un temp calurós a l'estiu (juny, julio, agost) i en aquests messos fa fred a Argentina.
 
-* Carregador
-* Productes d'higiene bàsica
-* Ropa còmoda
+Pér últim, recordau que nosaltres tenim un temp calurós a l'estiu (juny, julio, agost) i en aquests messos fa fred a Argentina.
 
 ---
 
-#### Per consultar més **informació rellevant**:
+## Per consultar més **informació rellevant**:
 
-En els enllaços següents trobareu més informació de Bons Aires que fins i tot podrian ser d'utilidad planificar el vostre viatge:
+En els enllaços següents trobareu més informació de Buenos Aires seràn d'utilidad planificar el vostre viatge:
 
 ![Trobeu més informació **visual** mitjançant Google Maps]()
 Enllaç a Google Maps:
