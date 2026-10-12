@@ -2,7 +2,7 @@
 
 ![Imatge representativa de Bons Aires, Argentina](https://images.trvl-media.com/place/6060849/f748009f-3a69-4aa8-98d1-2828033174a9.jpg)
 
-Aquesta guia de viatge té com a objectiu inspirar o ajudar a tothom qui estigui interessat a viatjar a Buenos Aires. Pel que fa a Buenos Aires, és important saber que és la **capital d'Argentina** i que hi trobareu una ciutat fascinant, amb influències europees evidents en la seva **arquitectura**, una **cuina** basada en plats de carn, empanades i dolços, així com **activitats** com ballar el tango o jugar a futbol. Pér últim, recordau que nosaltres tenim un temp calurós a l'estiu (juny, julio, agost) i en aquests messos fa fred a Argentina. Tant si viatges sol, en grup o tens amics argentins que vénen a trobar-te, aquesta guia et serà molt útil.
+Aquesta guia de viatge té com a objectiu inspirar o ajudar a tothom qui estigui interessat a viatjar a Buenos Aires. Pel que fa a Buenos Aires, és important saber que és la **capital d'Argentina** i que hi trobareu una ciutat fascinant, amb influències europees evidents en la seva **arquitectura**, una **cuina** basada en plats de carn, empanades i dolços, així com **activitats** com ballar el tango o jugar a futbol. Si voleu anar en algunes dates concretes, en febrer o març es fà el carnaval, menres que a agos o setembre es fa el Festival i Mundial de Tango BA. Pér últim, recordau que nosaltres tenim un temp calurós a l'estiu (juny, julio, agost) i en aquests messos fa fred a Argentina. Tant si viatges sol, en grup o tens amics argentins que vénen a trobar-te, aquesta guia et serà molt útil.
 
 
 ## Itinerari recomanat
@@ -79,13 +79,9 @@ Podreu probar gastronomia argentina típica a llocs com els següents:
 
 En els enllaços següents trobareu més informació de Buenos Aires seràn d'utilidad planificar el vostre viatge:
 
-![Trobeu més informació **visual** mitjançant Google Maps]()
-Enllaç a Google Maps:
+![Trobeu més informació **visual** mitjançant Google Maps](https://www.google.com/maps/search/bs+as%2C+Argentina/?hl=es)
 
-![Trobeu més informació **històrica i cultural** a la Viquièdia]()
-Enllaç a la Viquipèdia:
+![Trobeu més informació **històrica i cultural** a la Viquièdia](https://ca.wikipedia.org/wiki/Buenos_Aires)
 
-![Trobau més informació per **planificar el vostre viatge** a la Web de Turisme]()
-Enllaç a la Web de Turisme...
 
-Imatge de la ciutat
+![Trobau més informació per **planificar el vostre viatge** a la Web de Turisme](https://turismo.buenosaires.gob.ar/es)
