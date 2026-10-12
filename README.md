@@ -8,9 +8,63 @@ Tant si viatges sol, en grup o tens amics argentins que vénen a trobar-te, aque
 
 ## Itinerari recomanat
 
+En aquesta guia de viatge vos plantejam un itinerari de cinc dies.
 
+### Dia 1: El centre de la ciutat
+
+* Plaza de Mayo i la Casa Rosada.
+
+* Avinguda de Mayo i els seus edificis històrics.
+
+* Obelisc i avinguda Corrientes.
+
+* Sopar en una pizzeria tradicional.
+
+
+### Dia 2: La Boca i San Telmo
+
+* Matí a Caminito i els voltants.
+
+* Tarda recorrent San Telmo i el seu mercat.
+
+* Si és diumenge, visita la fira de la Plaza Dorrego.
+
+* Acaba el dia amb un sopar argentí o un espectacle de tango.
+
+
+### Dia 3: llocs culturals i espais arquitectònics destacats
+
+* Cementiri de la Recoleta.
+
+* Museu Nacional de Belles Arts, si t’interessa l’art.
+
+* Llibreria El Ateneo Grand Splendid.
+
+* Teatro Colón, amb una visita guiada o una funció si encaixa amb el pressupost.
+
+### Dia 4: Palermo
+
+* Passeig pels Bosques de Palermo i el Rosedal.
+
+* Explora Palermo Soho i les seves botigues, cafeteries i restaurants.
+
+* Tarda lliure per quedar amb els teus amics i conèixer els seus llocs preferits.
+
+* A la nit, descobreix algun bar o local de música.
+
+### Dia 5: Puerto Madero
+
+* Passeig per Puerto Madero i el Puente de la Mujer.
+
+* Reserva Ecológica Costanera Sur, si està oberta i el temps acompanya.
+
+* Dinar de comiat amb els teus amics.
+
+* Compra factures o alfajores per gaudir-ne abans de tornar.
 
 ## Top 3 llocs on anar en Buenos Aires
+
+Si el nostre itinerari no ha sigut del vostre gust, encara podeu organitzar el vostre viatge amb aquestes recomanacions:
 
 1. L'Obelisc i l'avinguda 9 de Julio:
 
