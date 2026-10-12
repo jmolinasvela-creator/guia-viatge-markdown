@@ -5,10 +5,6 @@
 Aquesta guia de viatge té com a objectiu inspirar o ajudar a tothom qui estigui interessat a viatjar a Buenos Aires. Pel que fa a Buenos Aires, és important saber que és la capital d'Argentina i que hi trobareu una ciutat fascinant, amb influències europees evidents en la seva arquitectura, una cuina basada en plats de carn, empanades i dolços, així com activitats com ballar el tango o jugar a futbol.
 Tant si viatges sol, en grup o tens amics argentins que vénen a trobar-te, aquesta guia et serà molt útil.
 
-## Llocs d'interès
-
-El llocs d'interès 
-
 
 ## Itinerari recomanat
 
@@ -27,7 +23,11 @@ El llocs d'interès
    
 ## Mencions honorífiques
 
+Altres llocs d'interés poden ser:
 
+1. L'Obelisc i l'avinguda 9 de Julio: Símbol de la ciutat. Es troba al centre i es un bon punt de partida per explorar els voltants. A l'avinguda Corrientes n'hi ha teatres, llibreries i pizzeries que mereixen la pena visitar.
+2. Caminito i el barri de La Boca: Es una zona molt famosa perque les cases estàn pintades de colors. Es pot apreciar l'art urbà i la seva relació històrica amb el tango. Es troba a pror de La Bombonera, que es l'estadi de Boca Juniors, un equip famós argentí de futbol. 
+3. Puerto Madero: Aquest por antic es va reconvertir en una zona moderna. Es conforma per una zona empresarial d'oficines, restaurants i passeigs vora l'aigua. Un dels punts més turístics es El Puente de la Mujer.
 
 Encara que he indicat alguns dels llocs millor valorats turísticament de Buenos Aires, cualsevol viatger voldría sebre de l'existència d'aquestes mencions honorífiques.
 
