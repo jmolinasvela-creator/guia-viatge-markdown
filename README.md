@@ -2,12 +2,11 @@
 
 ![Imatge representativa de Bons Aires, Argentina](https://images.trvl-media.com/place/6060849/f748009f-3a69-4aa8-98d1-2828033174a9.jpg)
 
-Aquesta guia de viatge té com a objectiu inspirar o ajudar a tothom qui estigui interessat a viatjar a Buenos Aires. Pel que fa a Buenos Aires, és important saber que és la **capital d'Argentina** i que hi trobareu una ciutat fascinant, amb influències europees evidents en la seva **arquitectura**, una **cuina** basada en plats de carn, empanades i dolços, així com **activitats** com ballar el _tango_ o jugar a _futbol_. Si voleu anar en algunes dates concretes, en febrer o març es fà el **carnaval**, mentres que a agost o setembre es fa el **Festival i Mundial de Tango BA**. Pér últim, recordau que nosaltres tenim un temp calurós a l'estiu (juny, julio, agost) i en aquests messos fa fred a Argentina. Tant si viatges sol, en grup o tens amics argentins que vénen a trobar-te, aquesta guia et serà molt útil.
-
+Aquesta guia de viatge té com a objectiu inspirar o ajudar a tothom qui estigui interessat a viatjar a **Buenos Aires**. Pel que fa a Buenos Aires, és important saber que és la **capital d'Argentina** i que hi trobareu una ciutat fascinant, amb influències europees evidents en la seva **arquitectura**, una **cuina** basada en plats de carn, empanades i dolços, així com **activitats** com ballar el _tango_ o jugar a _futbol_. Si voleu anar en algunes dates concretes, en febrer o març es fà el **carnaval**, mentres que a agost o setembre es fa el **Festival i Mundial de Tango BA**. Pér últim, recordau que al mesos d'estiu tenim un temp calorós, mentre que allà farà **fred** durant aquests mesos (juny, juliol i agost). Tant si viatges sol, en grup o tens amics argentins que vénen a trobar-te, aquesta guia et serà molt útil.
 
 ## Itinerari recomanat
 
-En aquesta guia de viatge vos plantejam un itinerari de cinc dies per descobrir els barris principals sense prises. 
+En aquesta guia de viatge vos plantejam un itinerari de cinc dies per descobrir els barris principals sense prises, a un ritme tranquil.  El primer dia, recomanem visitar el **centre de la ciutat**. El segon dia, dirigeix-te a **San Telmo**. El tercer dia, pots aprofitar per visitar **llocs culturals** i admirar els **monuments arquitectònics** més famosos de Buenos Aires. El quart dia, pots visitar **Palermo**. Finalment, el cinquè dia, recomanem visitar **Puerto Madero**. 
 
 1. **El centre de la ciutat**
 
@@ -25,7 +24,6 @@ En aquesta guia de viatge vos plantejam un itinerari de cinc dies per descobrir 
     * Un dels barris més antics de Buenos Aires. Hi trobaràs patrimoni históric, arquitectura colonial i una vida cultural atractiva. Té carrers antics, tendes d'antigüetats i bars.
   * Si és diumenge, visita la fira de la **Plaza Dorrego**.
   * Acaba el dia amb un sopar argentí o un espectacle de _tango_.
-
 
 3. **Llocs culturals i espais arquitectònics destacats**
 
@@ -51,27 +49,27 @@ En aquesta guia de viatge vos plantejam un itinerari de cinc dies per descobrir 
 
 ## Gastronomia
 
-La gastronomia argentina te molta influencia italiana i espanyola, encara que han adaptat aquesta influencia al seus gusts i receptes. 
+La cuina argentina està fortament influïda per les tradicions **italianes** i **espanyoles**, tot i que aquestes influències s'han adaptat i les receptes s'han modificat per ajustar-se als gustos locals.
 
-Alguns dels plats més típics son:
+Alguns dels plats salats més típics d'Argentina són els següents: 
 
   * Empanadas
     * Masses farcides de carn, de pollastre o pernil i formatge, entre altres ingredients.   
   * Fugazzeta
-    * És un tipus de pizza porteña amb una gran quantitat de formatge i moltíssima ceba.
+    * És un tipus de pizza porteña amb una gran quantitat de formatge i un munt de ceba.
   * Asado
     * Talls de carn cuinats a la graella. Pot inclourse xoriço o botifarra negra. A vegades s'aprofita per fer provoleta, que es formatge _provolone_ fet a la graella.
   * Milanesa
-    * Carn de pollaste o vedella arrebossada i fregida. Es pot servir amb ensalada, patates fregides o puré de patates. Hi ha una versió napolitana que incloeix tomàquet (o salsa de tomàtiga), formatge, oregan i a vegades pernil. 
+    * Carn de pollaste o vedella arrebossada i fregida. Es pot servir amb una amanida, patates fregides o puré de patates. Hi ha una versió napolitana que incloeix tomàquet (o salsa de tomàtiga), formatge, orenga i a vegades pernil. 
 
-Per berenar trobareu opcions com:
+Per berenar al matí o a la tarda, trobareu opcions delicioses i variades com:
 
   * Facturas
-    * Productes de brioixeria. N'hi ha moltes diferentes, cadasquna amb el seu nom. És habitual que duguin membrillo i crema.
+    * Productes de _brioixeria_. Hi ha moltes diferentes, cadasquna amb el seu nom. Normalment duen **codony** i **crema pastissera**.
   * Alfajores
-    * Dolços formats per dues galetes amb farciment, sovint de dolç de llet.
+    * Dolços formats per dues galetes amb farciment de **dolç de llet**.
   * Mate
-    * Una beguda feta amb yerba mate i aigua. Pot endolçarse amb mel o sucre.
+    * Una beguda feta amb **yerba mate** i aigua. Es pot endolcir amb mel o sucre.
 
 Podreu probar gastronomia argentina típica a llocs com els següents:
 
