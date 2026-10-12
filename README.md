@@ -18,7 +18,7 @@ En aquesta guia de viatge vos plantejam un itinerari de cinc dies per descobrir 
 
 * Obelisc i avinguda Corrientes.
 
-Símbol de la ciutat. Es troba al centre i es un bon punt de partida per explorar els voltants. A l'avinguda Corrientes n'hi ha teatres, llibreries i pizzeries que mereixen la pena visitar.
+  * Símbol de la ciutat. Es troba al centre i es un bon punt de partida per explorar els voltants. A l'avinguda Corrientes n'hi ha teatres, llibreries i pizzeries que mereixen la pena visitar.
 
 * Sopar en una pizzeria tradicional.
 
@@ -27,11 +27,11 @@ Símbol de la ciutat. Es troba al centre i es un bon punt de partida per explora
 
 * Matí a Caminito i els voltants.
 
-Es una zona molt famosa perque les cases estàn pintades de colors. Es pot apreciar l'art urbà i la seva relació històrica amb el tango. Es troba a pror de La Bombonera, que es l'estadi de Boca Juniors, un equip famós argentí de futbol.
+  * Es una zona molt famosa perque les cases estàn pintades de colors. Es pot apreciar l'art urbà i la seva relació històrica amb el tango. Es troba a pror de La Bombonera, que es l'estadi de Boca Juniors, un equip famós argentí de futbol.
 
 * Tarda recorrent San Telmo i el seu mercat.
 
-Un dels barris més antics de Buenos Aires. Hi trobaràs patrimoni históric, arquitectura colonial i una vida cultural atractiva. Té carrers antics, tendes d'antigüetats, bars, feries els diumenges.  
+  * Un dels barris més antics de Buenos Aires. Hi trobaràs patrimoni históric, arquitectura colonial i una vida cultural atractiva. Té carrers antics, tendes d'antigüetats, bars, feries els diumenges.  
 
 * Si és diumenge, visita la fira de la Plaza Dorrego.
 
@@ -46,11 +46,11 @@ Un dels barris més antics de Buenos Aires. Hi trobaràs patrimoni históric, ar
 
 * Llibreria El Ateneo Grand Splendid.
 
-Una antiga sala de teatre que es va transformar en una llibrería a l'any 2000. Es troba en el barri de Recoleta. Es un espai que mescla lo cultural amb l'estètic, motiu pel cual atrau tant a gent local com a turistes.
+  * Una antiga sala de teatre que es va transformar en una llibrería a l'any 2000. Es troba en el barri de Recoleta. Es un espai que mescla lo cultural amb l'estètic, motiu pel cual atrau tant a gent local com a turistes.
 
 * Teatro Colón, amb una visita guiada o una funció si encaixa amb el pressupost.
 
-  Un teatre d'òpera de fama internacional. Fan visites guiades, encara que el millor es aconseguir entrades per veure cualque funció. Així es podrà disfrutar de l'acústica que proporciona l'edifici.
+  * Un teatre d'òpera de fama internacional. Fan visites guiades, encara que el millor es aconseguir entrades per veure cualque funció. Així es podrà disfrutar de l'acústica que proporciona l'edifici.
 
 ### Dia 4: Palermo
 
@@ -64,7 +64,7 @@ Una antiga sala de teatre que es va transformar en una llibrería a l'any 2000. 
 
 * Passeig per Puerto Madero i el Puente de la Mujer.
 
-Aquest por antic es va reconvertir en una zona moderna. Es conforma per una zona empresarial d'oficines, restaurants i passeigs vora l'aigua. Un dels punts més turístics es El Puente de la Mujer.
+  * Aquest por antic es va reconvertir en una zona moderna. Es conforma per una zona empresarial d'oficines, restaurants i passeigs vora l'aigua. Un dels punts més turístics es El Puente de la Mujer.
 
 * Reserva Ecológica Costanera Sur, si està oberta i el temps acompanya.
 
